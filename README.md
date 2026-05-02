@@ -1,5 +1,5 @@
+<img width="800" height="144" alt="tumblr_5247f50ef98835a6f5bf6f4f4cdcaf8f_0043fdb2_1280" src="https://github.com/user-attachments/assets/4ea3d9d5-ed2f-49ec-a0a9-f072db1dc63c" />
 
-<img width="600" height="250" alt="cc2ce60c0fd2c1eccb6f4aa244e37794" src="https://github.com/user-attachments/assets/fb710367-2546-41d0-97ef-8417320d2d1f" />
 
 ## read strawp. sign ata! <3
 <p align="center">
