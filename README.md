@@ -2,6 +2,7 @@
 ![](https://komarev.com/ghpvc/?username=hitachiH8)
 ## read strawp. sign ata! <3
 main interests- jjba, touhou, soulsborne, umamusume, the fallout franchise, and overwatch
+
 my favorite music artists are franz ferdinand, muse, jamiroquai, bob dylan, father john misty, the clash, black midi and black country new road.
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
