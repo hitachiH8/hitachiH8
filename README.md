@@ -2,6 +2,7 @@
 ![](https://komarev.com/ghpvc/?username=hitachiH8)
 
 *Why can't we see that when we bleed we bleed the same?*
+hi im hal im the number one white fox and luna snow on marvel rivals
 ## read strawp. sign ata. | w2i if i do not respond immediately, c+h always encouraged unless with friends.
 main interests- jjba, muse(band),touhou, soulsborne, umamusume, the fallout franchise, and overwatch.
 
