@@ -8,7 +8,7 @@
 ## read strawp. sign ata. | w2i if i do not respond immediately, c+h always encouraged unless with friends.
 main interests- jjba, muse(band),touhou, soulsborne, umamusume, the fallout franchise, and overwatch.
 
-my favorite characters are - kira yoshikage (jjba), toyosatomimi no miko (touhou), solaire (ds1), daitaku vivlos (umamusume), colonel hsu (fallout new vegas), and juno (overwatch.) i have alot of favorite jjba characters though. ask me about them. i love talking <3
+i love alex kapranos and matt bellamy and nick mccarthy and keicho nijimura and asuka langley and more yeah
 
 my favorite music artists are franz ferdinand, muse, jamiroquai, bob dylan, father john misty, the clash, black midi and black country new road.
 <p align="center">
