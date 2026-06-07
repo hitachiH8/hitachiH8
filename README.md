@@ -3,7 +3,8 @@
 
 *Why can't we see that when we bleed we bleed the same?*
 
-hi im hal im the number one white fox and luna snow on marvel rivals
+#belldom #belldom #belldom #nilex #nilex
+
 ## read strawp. sign ata. | w2i if i do not respond immediately, c+h always encouraged unless with friends.
 main interests- jjba, muse(band),touhou, soulsborne, umamusume, the fallout franchise, and overwatch.
 
@@ -14,5 +15,5 @@ my favorite music artists are franz ferdinand, muse, jamiroquai, bob dylan, fath
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=6ggdy6fzat92hzu6fqee0bos0&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=false">
   </a>
-  <img width="400" height="181" alt="tumblr_adb3150de351c197ee4729c45c89fc42_6e43f55f_500" src="https://github.com/user-attachments/assets/70719bb3-f07f-40d6-95bc-690198f77b29" />
+ <img src="https://media.discordapp.net/attachments/1512872880147398808/1513081296061071460/does-anyone-have-any-leads-on-where-i-can-find-nicks-red-v0-x4nxyxlxmi4h1.png?ex=6a266e44&is=6a251cc4&hm=e12b25b89067e420bb084e5d01d24536a31d5b8b1e44d8ea1d07b7bf748b9743&=&format=webp&quality=lossless&width=400&height=500">
 </p>
