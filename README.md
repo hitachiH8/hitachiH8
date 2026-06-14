@@ -9,6 +9,7 @@
 main interests- jjba, muse(band),touhou, soulsborne, umamusume, marvel, the fallout franchise, and overwatch.
 
 i love alex kapranos and matt bellamy and nick mccarthy and keicho nijimura and asuka langley and more yeah
+
 im litally magik and yasuho hirose duh
 
 my favorite music artists are franz ferdinand, muse, jamiroquai, bob dylan, father john misty, the clash, black midi and black country new road.
