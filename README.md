@@ -6,9 +6,10 @@
 #belldom #belldom #belldom #nilex #nilex
 
 ## read strawp. sign ata. | w2i if i do not respond immediately, c+h always encouraged unless with friends.
-main interests- jjba, muse(band),touhou, soulsborne, umamusume, the fallout franchise, and overwatch.
+main interests- jjba, muse(band),touhou, soulsborne, umamusume, marvel, the fallout franchise, and overwatch.
 
 i love alex kapranos and matt bellamy and nick mccarthy and keicho nijimura and asuka langley and more yeah
+im litally magik and yasuho hirose duh
 
 my favorite music artists are franz ferdinand, muse, jamiroquai, bob dylan, father john misty, the clash, black midi and black country new road.
 <p align="center">
