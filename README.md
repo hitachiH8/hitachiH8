@@ -6,7 +6,7 @@
 #belldom #belldom #belldom #nilex #nilex
 
 ## read strawp. sign ata. | w2i if i do not respond immediately, c+h always encouraged unless with friends.
-main interests- jjba, muse(band),touhou, soulsborne, umamusume, marvel, the fallout franchise, and overwatch.
+main interests- jjba, muse(band),touhou, soulsborne, bandori, umamusume, marvel, the fallout franchise, and overwatch.
 
 i love alex kapranos and matt bellamy and nick mccarthy and keicho nijimura and asuka langley and more yeah
 
