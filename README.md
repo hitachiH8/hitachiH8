@@ -1,16 +1,13 @@
 
 ![](https://komarev.com/ghpvc/?username=hitachiH8)
 
-*Why can't we see that when we bleed we bleed the same?*
 
-#belldom #belldom #belldom #nilex #nilex
-
-## read strawp. sign ata. | w2i if i do not respond immediately, c+h always encouraged unless with friends.
+Sign ata if ud like | int idc u can do whateva
 main interests- jjba, muse(band),touhou, soulsborne, bandori, umamusume, marvel, the fallout franchise, and overwatch.
 
 i love alex kapranos and matt bellamy and nick mccarthy and keicho nijimura and asuka langley and more yeah
 
-im litally magik and yasuho hirose duh
+
 
 my favorite music artists are franz ferdinand, muse, jamiroquai, bob dylan, father john misty, the clash, black midi and black country new road.
 <p align="center">
