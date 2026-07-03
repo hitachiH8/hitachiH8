@@ -3,7 +3,7 @@
 
 
 Sign ata if ud like | int idc u can do whateva
-main interests- jjba, muse(band),touhou, soulsborne, bandori, umamusume, marvel, the fallout franchise, and overwatch
+main interests- jjba, muse(band),touhou, soulsborne, bandori, umamusume, marvel, the fallout franchise, genshin, hsr, and overwatch
 
 
 
