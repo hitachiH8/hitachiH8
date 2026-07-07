@@ -1,6 +1,10 @@
 
 ![](https://komarev.com/ghpvc/?username=hitachiH8)
 
+<img width="728" height="410" alt="tumblr_26b028e3b526c587eb8c645a725260c4_ad330cfb_1280" src="https://github.com/user-attachments/assets/d0792c7c-e17e-42e5-9e17-c05dc29a6312" />
+
+
+
 kamisato ayatos one and only
 
 
